@@ -1,0 +1,2 @@
+harry potter, a boy who learns on his elevanth birthday that he is a child of two wizards and that he has magical powers.
+he is summond from his life as an unwanted child to become a student at hogwart, a boarding school for wizards.
